@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-DICL040215HZSZRDA1
+DICL040215HZSZRDA1
